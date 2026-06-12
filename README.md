@@ -14,5 +14,5 @@
 🎥 YouTube Video Converter Website
 
 ## Contact
-📧 your-email@example.com
-💼 LinkedIn: your-linkedin-url
+📧 mm5861152@gmail.com
+💼 LinkedIn: https://www.linkedin.com/in/dharmik-more-b5134539a/
